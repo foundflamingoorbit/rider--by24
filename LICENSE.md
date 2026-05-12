@@ -1,4 +1,4 @@
-# 
+# premium JetBrains Rider for PC | JetBrains Rider for Windows Integration | code-navigation + testing-tools offers the most advanced JetBrains Rider for PC | JetBrains Rider for
 
 
 
